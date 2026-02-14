@@ -1,5 +1,4 @@
 # amayara-story
-story about Amayara and Kiara”
 Amayara had never wanted to leave home. The thought of staying in a hostel, far from her parents’ care, filled her with dread. The cold, echoing hallways, strangers in every corner, and the rigid routines of hostel life seemed unbearable. But circumstances left her no choice. With a deep breath and a heavy heart, she walked through the gates of the hostel, dragging her suitcase behind her as if it carried her entire world.
 The first days were the hardest. Meals were quiet, rooms were unfamiliar, and the laughter of others felt distant, almost mocking. Slowly, however, she began noticing small comforts: the sun spilling through the windows in the morning, the quiet of the library where she could lose herself in books, and the tiny victories of learning to navigate her new life.
 It was in this slow adjustment that she met them—her so-called friends. Eight girls who smiled at her in the corridors, whispered secrets in the dining hall, and called her their friend. Yet Amayara often felt their friendliness was superficial. They were friends by words, not by heart.
